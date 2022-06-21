@@ -1,1 +1,1 @@
-# Ticari-Otomasyon-Uygulamas-
+# Ticari-Otomasyon-Uygulamasi-
